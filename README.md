@@ -1,1 +1,0 @@
-# terakun.github.io-sample
